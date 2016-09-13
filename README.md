@@ -2,4 +2,4 @@
 
 Hey!
 
-A complete newbie to everything, in every sense possible.
+A complete newbie to everything, in every sense possible!
